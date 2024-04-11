@@ -7,4 +7,5 @@ Gisubizo louange 222010931
 Uwumugisha Beula 222015774
 Irahari Bondissa Cherise 222019313
 Baraka Ritha 222010945
-Nhuti p
+Nhuti pappy Serge 222012945
+Nyabunyana Esther 222013401
